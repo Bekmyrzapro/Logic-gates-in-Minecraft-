@@ -5,6 +5,7 @@ https://stepik.org/course/119390
 This is our course uploaded on stepik.Purpose of this course is to teach students in etertaining way (minecraft).
 Effective course that consist of 16 lessons and quizes.
 Our team members :Bekmyrza Dzhekshenaliev,Emir Sydykulov and Nursulatan Temirgaziev.
+
 P.s there are already real feedbacks.
 
 
